@@ -1,2 +1,3 @@
-20203079	 Seo Hajin
+20203079 Seohj
+
 Kookmin Univ. sW
