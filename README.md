@@ -1,2 +1,2 @@
 20203079 Seo Hajin
-Kookmin     Univ. sW
+Kookmin Univ. sW
